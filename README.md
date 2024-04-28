@@ -1,8 +1,5 @@
- #  ⠀⠀⠀ -–= ‐ ♢ ‐ =–-
- - ⠀⠀⠀⠀⠀⠀⠀⠀⠀♢ 12 Yrs
- - ⠀⠀⠀⠀⠀⠀⠀⠀ ♢ 16+ iwc
- -  ⠀⠀⠀♢ Possible Social Anxiety
- -  ⠀⠀⠀⠀♢ Possible Bad English
- -  ⠀⠀⠀⠀⠀⠀⠀⠀⠀♢ 🇵🇭
- -  ⠀⠀⠀⠀⠀♢ Not Always Online
- #  ⠀⠀⠀ -–= ‐ ♢ ‐ =–-
+
+
+https://github.com/m3dstar/zz/assets/160458839/320a92c4-ddcc-4b22-ac29-a5f1a0d4289f
+
+latest video in my gallery
